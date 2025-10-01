@@ -10,6 +10,6 @@ He received the **Nobel Prize in Physics in 1921**, not for relativity, but for 
 Einstein emigrated to the United States in 1933, fleeing Nazi Germany. He became a professor at Princeton University, where he worked until his death. While he opposed war, he warned of Nazi Germany’s nuclear ambitions, which indirectly influenced the Manhattan Project. After World War II, he became a strong advocate for peace, disarmament, and global cooperation.
 
 Beyond science, Einstein was admired for his humanism, sharp wit, and deep concern for humanity. His legacy lives on not only in physics but also in culture, where his name remains a symbol of genius. 
-12356
+123567
 
 
